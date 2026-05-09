@@ -1,4 +1,4 @@
-
+instant Strong for macOS Helper | custom-workouts + exercise-library offers the most advanced Strong for macOS helper, with custom-workouts and exercise-library. Ideal for macOS
 
 
 
